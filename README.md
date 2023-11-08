@@ -1,2 +1,2 @@
-# Gaza.net
+# free Palestine.net
 Pejuang syahid 
